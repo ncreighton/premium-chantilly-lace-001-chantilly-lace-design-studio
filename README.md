@@ -1,0 +1,2 @@
+# premium-chantilly-lace-001-chantilly-lace-design-studio
+Tired of losing track of intricate lace patterns, client revisions, and inspiration scraps across a dozen apps? Your design workflow deserves the same delicate precision as chantilly lace itself.  Chantilly Lace Design Studio is the first Notion template purpose-built for lace and textile designers who need a serene, organized workspace to manage p
